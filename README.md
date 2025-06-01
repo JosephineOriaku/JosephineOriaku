@@ -2,7 +2,7 @@
 - 👀 I am interested in Entrepreneuring, Crypto and Travelling
 - 🌱 I am currently learning YouTube Filming 
 - 💞️ I am looking to collaborate on learning how GitHub Works
-- 📫 How to reach me:Farcaster & Discord: josephineoriaku
+- 📫 How to reach me: Farcaster & Discord: josephineoriaku
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: Pro skater & gym enthusiast
 
