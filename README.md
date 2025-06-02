@@ -4,7 +4,7 @@
 - 💞️ I am looking to collaborate on learning how GitHub Works
 - 📫 How to reach me: Farcaster & Discord: josephineoriaku
 - 😄 Pronouns: She/Her/Hers
-- ⚡ Fun fact: Pro skater & gym enthusiast
+- ⚡ Fun fact: Pro skater & Gym enthusiast
 
 <!---
 JosephineOriaku/JosephineOriaku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
